@@ -1,6 +1,6 @@
 Swamp / Mick <- main names you can call me by
 
-c+h friendly im open to making new friends
+not as active anymore
 
 [sp ask & draw!!](https://sniperbullets.straw.page)
 
