@@ -1,13 +1,12 @@
-Swamp / Mick <- main names you can call me by
+SWAMP / MICK
 
-not as active anymore
+NOT AS ACTIVE ANYMORE,,
 
-[sp ask & draw!!](https://sniperbullets.straw.page)
-
-
+[SP ASK & DRAW](https://sniperbullets.straw.page)
 
 
-[information](https://rentry.co/highprices) <- BEST VIEWED ON PC
 
-[quicker guide](https://rentry.co/stormyascent)
-![shopkeeper](https://files.catbox.moe/m2w4kx.gif)
+
+[INFO](https://rentry.co/twinsanity) <- BEST VIEWED ON PC
+
+[QUICKER GUIDE](https://rentry.co/stormyascent)
