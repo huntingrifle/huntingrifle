@@ -7,6 +7,6 @@ NOT AS ACTIVE ANYMORE,,
 
 
 
-[INFO](https://rentry.co/twinsanity) <- BEST VIEWED ON PC
+[Info](https://rentry.co/twinsanity) <- BEST VIEWED ON PC
 
-[QUICKER GUIDE](https://rentry.co/stormyascent)
+[Byi and interests](https://rentry.co/stormyascent)
