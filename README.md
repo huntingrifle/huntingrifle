@@ -12,7 +12,7 @@ $${\color{#B40058}Minor ⠀They/any}$$
 
 $${\color{#660078}Aro + Questioning...}$$
 
- ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀   ⠀⠀⠀ ⠀ ![](https://files.catbox.moe/vv3fqn.gif) ⠀ ⠀ ⠀ ⠀![](https://files.catbox.moe/7gzbhj.gif)
+ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀   ⠀⠀⠀ ⠀ ![](https://files.catbox.moe/vv3fqn.gif) ⠀ ⠀ ⠀⠀⠀ ⠀![](https://files.catbox.moe/7gzbhj.gif)
 
 
 ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀   ⠀ ⠀ ⠀  ⠀ ⠀   ⠀ ⠀ ⠀  ⠀⠀  [Ask & Draw](https://sniperbullets.straw.page)
