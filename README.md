@@ -10,7 +10,7 @@
 
 $${\color{#B40058}Minor ⠀They/any}$$
 
-$${\color{#660078}Aro + Other...}$$
+$${\color{#660078}Aro. tomboy. gflux...}$$
 
  ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀   ⠀⠀⠀ ⠀ ![](https://files.catbox.moe/vv3fqn.gif) ⠀ ⠀ ⠀⠀⠀ ⠀![](https://files.catbox.moe/7gzbhj.gif)
 
