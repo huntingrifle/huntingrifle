@@ -1,6 +1,6 @@
  ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀![](https://files.catbox.moe/6hynqh.gif)
 
-![](https://files.catbox.moe/3web9l.png)
+⠀⠀ ![](https://files.catbox.moe/3web9l.png)
  
  ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀![](https://files.catbox.moe/6hynqh.gif)
  
