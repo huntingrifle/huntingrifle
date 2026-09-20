@@ -1,28 +1,28 @@
- ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀ ⠀![](https://files.catbox.moe/juq7kj.gif)
+ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀![](https://files.catbox.moe/6hynqh.gif)
 
- ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀remaking lol
+![](https://files.catbox.moe/3web9l.png)
  
- ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀![](https://files.catbox.moe/juq7kj.gif)
+ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀![](https://files.catbox.moe/6hynqh.gif)
  
  
   ⠀ ⠀ ⠀ ⠀
-  ⠀  ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ $${\color{#F80047}SWAMP ⠀or ⠀MICK}$$
+ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ $${\color{#FA1574}MICK ⠀or ⠀SWAMP}$$
 
-$${\color{#B40058}Minor ⠀They/any}$$
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $${\color{#FF62A1}Minor. ⠀They/any}$$
 
-$${\color{#660078}Aro. tomboy. gflux...}$$
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $${\color{#F4BCBC}Aromantic ⠀tomboy. ⠀gflux...}$$
 
-$${\color{#660078}Snipercest ⠀CEO ⠀; )}$$
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $${\color{#54213A}Snipercest ⠀CEO ⠀; )}$$
 
- ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀   ⠀⠀⠀ ⠀ ![](https://files.catbox.moe/vv3fqn.gif) ⠀ ⠀ ⠀⠀⠀ ⠀![](https://files.catbox.moe/7gzbhj.gif)
-
-
-⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀   ⠀ ⠀ ⠀  ⠀ ⠀   ⠀ ⠀ ⠀  ⠀⠀  [Ask & Draw Strawpage](https://sniperbullets.straw.page)
-⠀ ![](https://files.catbox.moe/5sojuv.png)
-
-⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀   ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀⠀  [Rentry](https://rentry.co/snipes)
-⠀ ![](https://files.catbox.moe/zk5gz8.png)
+ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀  ⠀   ⠀⠀⠀ ⠀ ![](https://files.catbox.moe/ybsuqz.gif)
 
 
-⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀   ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀   [Byi, dni & interests](https://rentry.co/stormyascent)
-⠀ ![](https://files.catbox.moe/vlundu.png)
+⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀ ⠀⠀  [Ask & Draw Strawpage](https://sniperbullets.straw.page)
+⠀ ![](https://files.catbox.moe/3u18kt.png)
+
+⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀⠀⠀ ⠀   ⠀ ⠀ ⠀⠀⠀⠀   ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀  [Rentry](https://rentry.co/snipes)
+⠀ ![](https://files.catbox.moe/kyh2i9.png)
+
+
+⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀   ⠀ ⠀ ⠀  ⠀ ⠀ ⠀⠀⠀ ⠀  ⠀ ⠀   [Byi, dni & interests](https://rentry.co/stormyascent)
+⠀ ![](https://files.catbox.moe/gflg3t.png)
