@@ -21,7 +21,7 @@
 ⠀ ![](https://files.catbox.moe/3u18kt.png)
 
 ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀⠀⠀ ⠀   ⠀ ⠀ ⠀⠀⠀⠀   ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀  [Rentry](https://rentry.co/snipes)
-⠀ ![](https://files.catbox.moe/kyh2i9.png)
+⠀ ![](https://files.catbox.moe/x32kc2.png)
 
 
 ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀   ⠀ ⠀ ⠀  ⠀ ⠀ ⠀⠀⠀ ⠀  ⠀ ⠀   [Byi, dni & interests](https://rentry.co/stormyascent)
