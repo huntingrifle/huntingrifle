@@ -16,7 +16,7 @@
 
  ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀ ![](https://files.catbox.moe/ybsuqz.gif) ⠀  ⠀![](https://files.catbox.moe/aot47a.webp)
 
-  ⠀ ⠀  ⠀⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀![](https://files.catbox.moe/6hynqh.gif)
+  ⠀ ⠀  ⠀⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀![](https://files.catbox.moe/6hynqh.gif)
 
 
 ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀ ⠀⠀  [Ask & Draw Strawpage](https://sniperbullets.straw.page)
