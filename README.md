@@ -1,8 +1,8 @@
- ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀  ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀![](https://files.catbox.moe/hm5m01.webp)
+ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀  ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀![](https://files.catbox.moe/hm5m01.webp)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀ ![](https://files.catbox.moe/3web9l.png)
  
- ⠀ ⠀  ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀![](https://files.catbox.moe/hm5m01.webp)
+ ⠀ ⠀  ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀![](https://files.catbox.moe/hm5m01.webp)
 
  
   ⠀ ⠀ ⠀ ⠀
@@ -14,7 +14,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ $${\color{#54213A}Snipercest ⠀CEO ⠀; )}$$
 
- ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ![](https://files.catbox.moe/ybsuqz.gif) ⠀  ⠀![](https://files.catbox.moe/aot47a.webp)
+ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀ ![](https://files.catbox.moe/ybsuqz.gif) ⠀  ⠀![](https://files.catbox.moe/aot47a.webp)
 
   ⠀ ⠀  ⠀⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀![](https://files.catbox.moe/6hynqh.gif)
 
