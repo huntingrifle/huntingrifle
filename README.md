@@ -17,12 +17,8 @@
   ⠀ ⠀  ⠀⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀![](https://files.catbox.moe/6hynqh.gif)
 
 
-⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀ ⠀⠀  [Ask & Draw Strawpage](https://sniperbullets.straw.page)
+⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀    ⠀         ⠀      ⠀ ⠀ ⠀ ⠀⠀ ![](https://files.catbox.moe/x32kc2.png) ⠀ [Ask & Draw](https://sniperbullets.straw.page)   ⠀ ⠀ ⠀[Rentry](https://rentry.co/snipes)
 ⠀ ![](https://files.catbox.moe/3u18kt.png)
-
-⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀⠀⠀ ⠀   ⠀ ⠀ ⠀⠀  ⠀  ⠀⠀ ⠀⠀ ⠀ ⠀⠀  [Rentry](https://rentry.co/snipes)
-⠀ ![](https://files.catbox.moe/x32kc2.png)
-
 
 ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀  ⠀ ⠀   [Byi dni & interests](https://rentry.co/stormyascent)
 ⠀ ![](https://files.catbox.moe/gflg3t.png)
