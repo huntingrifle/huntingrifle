@@ -1,4 +1,4 @@
- ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀  ⠀ ⠀⠀⠀ ⠀⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀![](https://files.catbox.moe/hm5m01.webp)
+ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀  ⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀  ⠀ ⠀ ⠀⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀⠀  ⠀ ⠀ ⠀⠀ $${\color{#FA1574}CUPID♡}$$
 
 ⠀⠀⠀⠀⠀⠀⠀⠀ ![](https://files.catbox.moe/3web9l.png)
  
