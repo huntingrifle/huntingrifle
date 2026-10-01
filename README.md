@@ -4,9 +4,9 @@
 
  
   ⠀ ⠀ ⠀ ⠀
-⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀⠀The cupid sniper you see all the time
+⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ $${\color{#F4BCBC}⠀THE ⠀cupid ⠀sniper ⠀you ⠀see ⠀all ⠀the ⠀time}$$
  
- ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ $${\color{#FA1574}MICK ⠀or ⠀SWAMP}$$⠀⠀ $${\color{#FF62A1}Any⠀pronouns.}$$
+ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ $${\color{#FA1574}MICK ⠀or ⠀SWAMP}$$⠀⠀ $${\color{#FF62A1}Any⠀pronouns.}$$
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $${\color{#F4BCBC}Genderflux ⠀aromantic ⠀tomboy}$$
 
