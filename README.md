@@ -4,7 +4,7 @@
 
  
   ⠀ ⠀ ⠀ ⠀
-⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ $${\color{#FF62A1}⠀THE ⠀cupid ⠀sniper ⠀you ⠀see ⠀all ⠀the ⠀time}$$
+⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ $${\color{#FF62A1}⠀The ⠀cupid ⠀sniper ⠀you ⠀see ⠀all ⠀the ⠀time}$$
  
  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ $${\color{#FA1574}MICK ⠀or ⠀SWAMP}$$⠀⠀ $${\color{#FF62A1}Any⠀pronouns.}$$
 
