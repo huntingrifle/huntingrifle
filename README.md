@@ -1,10 +1,6 @@
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀ ![](https://files.catbox.moe/3web9l.png)
-
- 
-  ⠀ ⠀ ⠀ ⠀
-⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀⠀ $${\color{#FF62A1}⠀The ⠀cupid ⠀sniper ⠀you ⠀see ⠀all ⠀the ⠀time}$$
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![](https://files.catbox.moe/xr3ovb.png)
  
  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ $${\color{#FA1574}MICK ⠀or ⠀SNIPES ⠀or ⠀SWAMP}$$⠀⠀ $${\color{#FF62A1}Any⠀pronouns.}$$
 
