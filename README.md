@@ -13,7 +13,7 @@
   ⠀ ⠀  ⠀⠀⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀![](https://files.catbox.moe/6hynqh.gif)
 
 
-⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀    ⠀         ⠀      ⠀ ⠀ ⠀ ⠀⠀ ![](https://files.catbox.moe/x32kc2.png) ⠀ [Ask & Draw](https://sniperbullets.straw.page)   ⠀ ⠀ ⠀[Rentry(redoing)](https://rentry.co/radiotalk)
+⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀    ⠀         ⠀      ⠀ ⠀ ⠀ ⠀⠀ ![](https://files.catbox.moe/x32kc2.png) ⠀ [Ask & Draw](https://sniperbullets.straw.page)   ⠀ ⠀ ⠀[Rentry](https://rentry.co/Harmoniums)
 ⠀ ![](https://files.catbox.moe/3u18kt.png)
 
 ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀  ⠀ ⠀   [Byi dni & interests](https://rentry.co/stormyascent)
