@@ -6,7 +6,7 @@
   
  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀ $${\color{#FA1574}MICK ⠀or ⠀SNIPES ⠀or ⠀SWAMP}$$⠀⠀ $${\color{#FF62A1}Any⠀pronouns.}$$
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $${\color{#F4BCBC}Genderflux ⠀aromantic ⠀tomboy}$$
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $${\color{#F4BCBC}Genderfluid ⠀aromantic ⠀tomboy}$$
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ $${\color{#54213A}Snipercest ⠀CEO ⠀; )}$$
 
