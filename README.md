@@ -1,14 +1,12 @@
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![](https://files.catbox.moe/xr3ovb.png)
-
-  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀  ⠀⠀⠀ $${\color{#FA1574}REMAKING ⠀SOON...}$$
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![](https://files.catbox.moe/9zcm4u.jpg)
   
- ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀ $${\color{#FA1574}MICK ⠀or ⠀SNIPES ⠀or ⠀SWAMP}$$⠀⠀ $${\color{#FF62A1}Any⠀pronouns.}$$
+ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀ $${\color{#989793}Mick ⠀or ⠀Swamp ⠀or ⠀Maxwell}$$⠀⠀ $${\color{#C1BDB1}Any⠀pronouns.}$$
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $${\color{#F4BCBC}Genderfluid ⠀aromantic ⠀tomboy}$$
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ $${\color{#54213A}Snipercest ⠀CEO ⠀; )}$$
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ $${\color{#54213A}Snipercest ⠀CEO ⠀; )}$$
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ![](https://files.catbox.moe/y5ytl1.gif)
 
  ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀ ![](https://files.catbox.moe/ybsuqz.gif) ⠀  ⠀![](https://files.catbox.moe/aot47a.webp)
 
