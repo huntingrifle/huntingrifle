@@ -8,7 +8,7 @@
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![](https://files.catbox.moe/gflg3t.png)
 
- ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀ ![](https://files.catbox.moe/bld0xy.gif) ⠀  ⠀![](https://files.catbox.moe/fg1mop.gif)
+ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀ ![](https://files.catbox.moe/bld0xy.gif) ⠀  ⠀![](https://files.catbox.moe/fg1mop.gif)
 
 
 ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀    ⠀         ⠀      ⠀ ⠀ ⠀ ⠀⠀ [Ask & Draw](https://sniperbullets.straw.page)   ⠀ ![](https://files.catbox.moe/x32kc2.png) ⠀⠀[Rentry](https://rentry.co/Harmoniums)
