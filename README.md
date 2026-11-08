@@ -2,7 +2,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![](https://files.catbox.moe/9zcm4u.jpg)
   
- ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀ $${\color{#989793}Mick ⠀or ⠀Swamp ⠀or ⠀Maxwell}$$⠀⠀ $${\color{#C1BDB1}Any⠀pronouns.}$$
+ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀ $${\color{#989793}Mick ⠀or ⠀Swamp ⠀or ⠀Maxwell}$$⠀⠀ $${\color{#C1BDB1}Any⠀pronouns.}$$
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀  ⠀⠀⠀⠀ $${\color{#40221A}Snipercest ⠀CEO ⠀; )}$$
 
