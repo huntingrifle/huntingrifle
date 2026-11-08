@@ -10,7 +10,7 @@
 
  ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀ ![](https://files.catbox.moe/bld0xy.gif) ⠀  ⠀![](https://files.catbox.moe/fg1mop.gif)
 
-  ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀![](https://files.catbox.moe/6vpsu6.gifv)
+ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ![](https://files.catbox.moe/6vpsu6.gifv)
 
 
 ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀    ⠀         ⠀      ⠀ ⠀ ⠀ ⠀⠀ ![](https://files.catbox.moe/x32kc2.png) ⠀ [Ask & Draw](https://sniperbullets.straw.page)   ⠀ ⠀ ⠀[Rentry](https://rentry.co/Harmoniums)
