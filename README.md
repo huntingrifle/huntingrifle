@@ -4,7 +4,7 @@
   
  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀ $${\color{#989793}Mick ⠀or ⠀Swamp ⠀or ⠀Maxwell}$$⠀⠀ $${\color{#C1BDB1}Any⠀pronouns.}$$
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀  ⠀⠀⠀⠀ $${\color{#40221A}Read ⠀BYI}$$
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀  ⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀ $${\color{#40221A}Read ⠀BYI ⠀in ⠀Rentry}$$
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![](https://files.catbox.moe/gflg3t.png)
 
@@ -14,7 +14,6 @@
 ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀    ⠀         ⠀      ⠀ ⠀ ⠀ ⠀⠀ [Ask & Draw](https://sniperbullets.straw.page)   ⠀ ![](https://files.catbox.moe/x32kc2.png) ⠀⠀[Rentry](https://rentry.co/Harmoniums)
 
 
-⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀⠀   ⠀   [Byi dni & interests](https://rentry.co/stormyascent)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ![](https://files.catbox.moe/y5ytl1.gif)
 
