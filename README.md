@@ -4,7 +4,7 @@
   
  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀ $${\color{#989793}Mick ⠀or ⠀Swamp ⠀or ⠀Maxwell}$$⠀⠀ $${\color{#C1BDB1}Any⠀pronouns.}$$
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀  ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀⠀ ⠀⠀⠀⠀ $${\color{#40221A}Read ⠀BYI ⠀in ⠀Rentry}$$
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀  ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀⠀⠀ $${\color{#40221A}Read ⠀BYI ⠀in ⠀Rentry}$$
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ![](https://files.catbox.moe/gflg3t.png)
 
